@@ -1,5 +1,7 @@
 # CUSTOMER-RELATIONSHIP-ASSISTANT
-Customer Relationship and Legal Administration professional with extensive experience managing enterprise client portfolios, government and private tenders, and legal contract documentation. Detail-oriented, organized, and capable of handling multiple high-stakes projects simultaneously under tight deadlines.
++6285283522966 | namush300195@gmail.com | linkedin.com/in/namush
+
+Customer Relationship and Legal Administration professional with extensive experience managing enterprise client portfolios, government and private tenders, and legal contract documentation. Proven track record of consistently exceeding sales targets, including a landmark achievement of IDR 5 Billion+ in 2025. Skilled in client retention, contract negotiation, tender management, and cross-department coordination. Detail-oriented, organized, and capable of handling multiple high-stakes projects simultaneously under tight deadlines.
 
 Client Account Management
 * Manage a portfolio of over 50 active enterprise clients as the primary point of contact, maintaining regular communication to ensure satisfaction and prevent churn—resulting in a significant and consistent increase in client retention rates year after year.
